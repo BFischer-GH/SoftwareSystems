@@ -1,2 +1,0 @@
-# NedapUni-SS
-
